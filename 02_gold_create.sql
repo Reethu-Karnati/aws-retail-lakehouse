@@ -1,1 +1,0 @@
--- see full notes doc for details
